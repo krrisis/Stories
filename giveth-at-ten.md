@@ -2,7 +2,7 @@
 
 On 16 November 2026, Griff Green and Lauren Luz handed the mic to people from different eras of Giveth. Some had known each other since the aftermath of The DAO hack. Others had found their way in through a YouTube video, a Burning Man camp, a job posting, or a friend with a spare room. Ten years into a project that began with the question of how to fund good work on Ethereum, people still remembered who had made room for them and what they were able to do once they got there.
 
-_Note: This is an AI generated summary slightly guided by me ([Kris](http://x.com/krrisis)) to highlight some of the key recurring themes. AI added some links, which might not be all correct, if you want me to tweak anything, just let me know._
+_Note: This is an AI generated summary slightly guided by me ([Kris](http://x.com/krrisis)) to highlight some of the key recurring themes. AI added some very random (!) but also some very surprising links, which might not be all correct, if you want me to tweak anything, just let me know._
 
 I’m linking the original recording here for historical reference, so the voices and stories have a place alongside the written account. The listening times below are elapsed times in the recording. [Listen to Giveth’s tenth-anniversary X Space](https://x.com/i/spaces/1POrrePAPVERd) as long as it's live (starts at 11 minutes in), you can also find the downloaded recording [here](https://github.com/krrisis/Stories/blob/main/Giveth-Turns-10-Join-Us-to-Celebrate-a-Decade-of-Giving%20(1).mp3)·
 
