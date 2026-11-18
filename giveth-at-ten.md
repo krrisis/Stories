@@ -70,6 +70,8 @@ Rafa remembered using an early Giveth campaign to raise money for a Tijuana orga
 
 Ashley said the freedom she found through Giveth let her travel, learn to fly, and start a project of her own that she says still serves hundreds of children. Much of her work at Giveth has been hearing from people who run projects. In the Space she talked about getting tours of orphanages on calls and seeing children receive school supplies. Lauren remembered Ashley bringing that perspective to a **Stellar** funding round by telling her what project owners were excited to do with the support. It brought the details of a funding round back to the people preparing a workshop or an event. [Ashley’s community and project support work](https://forum.giveth.io/t/communitas-working-group-proposal/1107) · [Stellar Community Growth round results](https://forum.giveth.io/t/stellar-community-growth-qf-round-results-september-21-october-4-2026/2292)
 
+And this is of course just the tip of the iceberg, discover the more than 7000 projects live on [Giveth](https://www.giveth.io/projects)
+
 *In the recording, 44:01–48:11 and 1:08:11–1:12:43.*
 
 ## Ten years later
